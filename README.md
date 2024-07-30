@@ -1,4 +1,5 @@
 ผมเชนนนนนนนนน
+อยากติดมอเกษตรมากมากมาก
 
 <!---
 zennext56/zennext56 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
